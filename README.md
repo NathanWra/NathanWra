@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on art projects and NFP work. 
 - 🤔 I’m looking for help with good resources for learning Gatsby!
 - 💬 Ask me about hot chips
-- 📫 How to reach me: say my name three times in the mirror (or send us an email)
+- 📫 How to reach me: say my name three times in the mirror (or send us a message on LinkedIn)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: All facts are fun facts if you have the right attitude. 
 
